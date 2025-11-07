@@ -1,11 +1,18 @@
+## 💬 Never Lose Another Lead Again
+
+I can set up a system that makes sure **no lead ever falls through the cracks.**  
+Every potential client gets **nurtured automatically**, even when you’re busy or on vacation.  
+You’ll **never lose another deal** because you forgot to follow up.
+
+---
+
 ## ⚡ Never Miss a Lead. Never Miss a Deal.
 
-What if every lead got followed up with automatically – within minutes of expressing interest?  
-What if no lead ever fell through the cracks again?  
-What if you never lost another deal because you forgot to follow up?  
+- What if every lead got followed up with automatically – within minutes of expressing interest?  
+- What if no lead ever fell through the cracks again?  
+- What if you never lost another deal because you forgot to follow up?  
 
-Meet the **Smart CRM Workflow** — four intelligent agents that capture, follow up, schedule, and re-engage automatically.
-
+Meet the **Smart CRM Automation Flow** — a powerful system of intelligent agents that captures, follows up, schedules, and re-engages leads automatically.
 
   ## ⚡ The Smart CRM Automation Flow
 
